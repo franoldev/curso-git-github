@@ -1,0 +1,1 @@
+Estou gostando muito do curso! Os instrutores são muito didáticos e conseguem transmitir os conhecimentos técnicos em uma linguagem simples, o que facilita a compreensão dos conteúdos. 
